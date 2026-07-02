@@ -1,0 +1,1 @@
+I hand-embroider portrait hoops and cast resin keepsakes for weddings, anniversaries and new homes — fabric lehengas with real gota trim, dried petals sealed under glass, tassels tied one at a time. If it's worth remembering, it's worth stitching.
